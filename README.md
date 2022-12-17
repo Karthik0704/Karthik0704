@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Karthik0704
+- 👀 I’m interested in all sorts of coding and ethial hacking and related stuff...
+- 🌱 I’m currently learning AIML
+- 💞️ I’m looking to collaborate on well experienced profiles related to mine.
+- 📫 can contact me on www.linkedin.com/in/karthik-k-r-37bb52244
